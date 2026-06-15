@@ -2,21 +2,21 @@
 
 Notes on where and how to train for the Tour Divide. All training is outdoors only — no indoor trainer.
 
-## Seasonal bases: Logan (summer) and Sedona (winter)
+## Seasonal bases: Logan (summer) and Cottonwood (winter)
 
-Logan, Utah (~4,500 ft) and Sedona, Arizona (~4,350 ft) work together as seasonal bases, and between them they simulate the two different halves of the Tour Divide. Both allow outdoor riding at a similar moderate elevation.
+Logan, Utah (~4,500 ft) and the Sedona area (~3,300-4,350 ft) work together as seasonal bases, and between them they simulate the two different halves of the Tour Divide. Both allow outdoor riding at a moderate elevation.
 
 Logan is the summer base for everyday living and non-Divide training. Its cold, alpine, forested Rockies terrain simulates the northern half of the route — Banff, Montana, and Wyoming.
 
-Sedona is the winter base. Its dry red-rock high desert simulates the southern half — the New Mexico and southern Colorado sections — and trains heat, exposure, and high-desert dirt and gravel. Flagstaff (~7,000 ft) is about 45 minutes up the hill for higher-altitude rides when needed.
+Cottonwood, Arizona (~3,300 ft) is the winter base. It is the chosen base in the Verde Valley near Sedona: it is the largest local town with bike shops and a real riding community, has the Dead Horse Ranch State Park / Thumper trails in town, and connects to Sedona via the ~15-mile Lime Kiln dirt route. The dry red-rock high desert here simulates the southern half of the Divide — the New Mexico and southern Colorado sections — and trains heat, exposure, and high-desert dirt and gravel. Sedona's world-class singletrack and Flagstaff (~7,000 ft, about an hour up the hill) are close for harder trails and higher-altitude rides when needed.
 
 ## Yearly plan
 
-October through May: rent a single room with roommates in or near Sedona, budget $800/month or under (nearby towns like Cottonwood or Cornville are more likely to hit this).
+October through May: rent a single room with roommates in Cottonwood, budget $800/month or under.
 
 June through September: car life, ride the Tour Divide, and take other adventures.
 
 
 ## Altitude note
 
-The Tour Divide crosses passes over 11,000 ft (Indiana Pass in Colorado is ~11,910 ft). A base around 4,200-4,500 ft gives modest acclimation; plan a higher-altitude block (for example Colorado high country, or Flagstaff from Sedona) before the June start.
+The Tour Divide crosses passes over 11,000 ft (Indiana Pass in Colorado is ~11,910 ft). A base around 3,300-4,500 ft gives modest acclimation; plan a higher-altitude block (for example Colorado high country, or Flagstaff from Cottonwood) before the June start.
