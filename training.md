@@ -19,7 +19,17 @@ June through September: car life, ride the Tour Divide, and take other adventure
 
 ## Shakedown route: Lime Kiln Trail
 
-The Lime Kiln Trail is a ~15-mile (one-way) route connecting Cottonwood (Dead Horse Ranch State Park) and Sedona (Red Rock State Park) through high desert, red rock, sand, slickrock, washes, and some technical rocky sections. Difficulty is moderate to difficult with rocky climbs, loose descents, and occasional hike-a-bike. It works well as a loaded shakedown ride for testing Divide bags and setup — ride it point-to-point, as a short overnighter (Cottonwood to Sedona, camp, return), or as a connector segment in larger Verde Valley loops. It is dry and hot much of the year, so carry plenty of water; sources are scarce.
+The Lime Kiln Trail (Coconino National Forest Trail No. 82) is a ~15-mile route connecting Cottonwood (Dead Horse Ranch State Park) and Sedona (Red Rock State Park) through high desert, red rock, sand, slickrock, washes, and technical rocky sections.
+
+### Use designations
+
+Of the 15 miles, about 9 miles are non-motorized only (hike, bike, horse) and about 6 miles are motorized/OHV allowed. Bicycles are allowed on the full route, but OHVs cannot legally run the whole thing. The chunky, technical, and cactus-lined unridable sections fall in the non-motorized singletrack stretch, where even hike-a-bike can be impractical.
+
+### Plan
+
+- Shakedown ride: ride the full route on the loaded bikepacking rig, point-to-point Cottonwood to Sedona, or as a short overnighter (ride out, camp, return). Good for testing bags and setup, and for practicing pushing a loaded bike over the unridable sections, similar to Tour Divide hike-a-bike (Koko Claims, Fleecer Ridge).
+- Divide-simulation rides: for surface that actually matches the Tour Divide (sustained, ridable dirt and gravel roads, not technical singletrack), favor the motorized Lime Kiln segment plus connecting forest roads (for example Schnebly Hill Road and other Coconino/Prescott National Forest FR roads) rather than the cactus-choked non-motorized singletrack.
+- Logistics: it is dry and hot much of the year, so carry plenty of water; sources are scarce. Budget extra time because the technical and sandy sections are slow. Check current Forest Service maps for exact motorized vs non-motorized segment boundaries before riding.
 
 
 ## Altitude note
