@@ -17,6 +17,11 @@ October through May: rent a single room with roommates in Cottonwood, budget $80
 June through September: car life, ride the Tour Divide, and take other adventures.
 
 
+## Shakedown route: Lime Kiln Trail
+
+The Lime Kiln Trail is a ~15-mile (one-way) route connecting Cottonwood (Dead Horse Ranch State Park) and Sedona (Red Rock State Park) through high desert, red rock, sand, slickrock, washes, and some technical rocky sections. Difficulty is moderate to difficult with rocky climbs, loose descents, and occasional hike-a-bike. It works well as a loaded shakedown ride for testing Divide bags and setup — ride it point-to-point, as a short overnighter (Cottonwood to Sedona, camp, return), or as a connector segment in larger Verde Valley loops. It is dry and hot much of the year, so carry plenty of water; sources are scarce.
+
+
 ## Altitude note
 
 The Tour Divide crosses passes over 11,000 ft (Indiana Pass in Colorado is ~11,910 ft). A base around 3,300-4,500 ft gives modest acclimation; plan a higher-altitude block (for example Colorado high country, or Flagstaff from Cottonwood) before the June start.
