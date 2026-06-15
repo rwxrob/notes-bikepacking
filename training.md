@@ -12,7 +12,7 @@ Sedona is the winter base. Its dry red-rock high desert simulates the southern h
 
 ## Yearly plan
 
-October through May: rent a single room in Sedona for under $600/month.
+October through May: rent a single room with roommates in or near Sedona, budget $800/month or under (nearby towns like Cottonwood or Cornville are more likely to hit this).
 
 June through September: car life, ride the Tour Divide, and take other adventures.
 
